@@ -1,3 +1,4 @@
+<h2> Jaynix's Intro </h2>
 - 👋 Hi, I’m @jaynix52
 - 👀 I’m interested in Computer Hardware
 - 🌱 I use arch btw
