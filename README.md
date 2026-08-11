@@ -5,15 +5,12 @@
 
 - 💬 Talk to me about **Linux :D**
 
-- 📫 How to reach me **jeshiahj@gmail.com**
+- 📫 How to reach me **Discord @Jaynix#8438**
 
 - 📄 Know about my experiences [https://newresume-afe13c.tiiny.site](https://newresume-afe13c.tiiny.site)
 
-- ⚡ Fun fact **I think I am an Artist**
+- ⚡ Fun fact **I am a keyboard collector**
 
-<h3 align="left">Connect with me:</h3>
-<p align="left">
-</p>
 
 <h3 align="left">Languages and Tools:</h3>
 <p align="left"> 
